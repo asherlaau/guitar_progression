@@ -9,7 +9,7 @@
     3. I Miss You by Ichika 
 
 
-# the cost of guitar, pick, and amp
+# The cost of guitar, pick, and amp
 - jet guitar (dont know the name, but it is for beginner)
 - amp Fender Mustang" LT25
 - pick free, jazz III 1.35mm
