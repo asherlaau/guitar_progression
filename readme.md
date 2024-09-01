@@ -1,4 +1,12 @@
-# Record of my training 
+# Record of my guitar training 
+
+# Reason to learn and the goal
+- I am currently studying my master degree in Austrailia, I am a self taught programmer, the course is pretty easy for me, and in Canberra there is no entertainment, the city is small, I feel a lot of distance from people. Even I made some friend here, but when I go home after all, I feel empty loney, I don't want these feelings. Metal music and ichika's music helps me a lot to handle these kind of negative feelings. So, why not cultivate a hobbies and I have 2 years, I can spend almost 9hrs a day to play it, I might master this instrutment or at least become an average player. 
+
+- the goal is to play my favourite songs 
+    1. Bad Habbits by silverstein
+    2. Theres no penguins in alaska by Chiodos
+    3. I Miss You by Ichika 
 
 
 # the cost of guitar, pick, and amp
