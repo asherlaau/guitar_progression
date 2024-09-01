@@ -34,6 +34,8 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 - Learnt pull off and hammer on, I can play one last breath but slow version
 - Set up my daily training routine, the 10 shredding ex
 
-# Day 10 (6 hrs), total 56 hrs
+# Day 10 (4 hrs), total 54 hrs
 
 - play the alternate picking sequence at 70% speed. 
+- very slow with the sextuplet
+- after rock climbing, my fingers and arm are so tired, cant even wrap my ass， but i felt i am making huge progression
