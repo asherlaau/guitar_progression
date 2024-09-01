@@ -1,6 +1,13 @@
 # Record of my training 
 
 
+# the cost of guitar, pick, and amp
+- jet guitar (dont know the name, but it is for beginner)
+- amp Fender Mustang" LT25
+- pick free, jazz III 1.35mm
+
+total : 810 AUD = 4330 HKD （expensive {-}_{-}）
+
 # Day 1 - 4 (30hrs), total 30hrs
 
 - learnt spider, c major scale from youtube 
