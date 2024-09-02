@@ -44,6 +44,6 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 
 - play the alternate picking sequence at 80% speed, a bit messy, but i am getting used to the speed. (1hrs)
 - spider (30 mins, from 60 to 200)
-- still building muscle memories of sextuplet pentatonic and minor scale run
+- still building muscle memories of sextuplet pentatonic and minor scale run -> 5:42 pm (35% of original speed) (3.5hrs) -> today's goal : pushing to (55%) 
 
 - want to try the cant stop riff
