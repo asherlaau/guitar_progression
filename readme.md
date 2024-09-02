@@ -40,10 +40,9 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 - very slow with the sextuplet pentatonic and minor scale run
 - after rock climbing, my fingers and arm are so tired, cant even wrap my ass， but i felt i am making huge progression
 
-# Day 11 ()
+# Day 11 (6hrs), total 60hrs
 
 - play the alternate picking sequence at 80% speed, a bit messy, but i am getting used to the speed. (1hrs)
 - spider (30 mins, from 60 to 200)
-- still building muscle memories of sextuplet pentatonic and minor scale run -> 5:42 pm (35% of original speed) (3.5hrs) -> today's goal : pushing to (55%) 
-
-- want to try the cant stop riff
+- still building muscle memories of sextuplet pentatonic and minor scale run -> 5:42 pm (35% of original speed) (3.5hrs) -> today's goal : pushing to (55%)
+- i can only do 47%, but it is okay.  (1hr)
