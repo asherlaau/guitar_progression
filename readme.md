@@ -43,6 +43,7 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 # Day 11 ()
 
 - play the alternate picking sequence at 80% speed, a bit messy, but i am getting used to the speed. (1hrs)
+- spider (30 mins, from 60 to 200)
 - still building muscle memories of sextuplet pentatonic and minor scale run
 
 - want to try the cant stop riff
