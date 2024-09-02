@@ -39,3 +39,10 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 - play the alternate picking sequence at 70% speed. 
 - very slow with the sextuplet pentatonic and minor scale run
 - after rock climbing, my fingers and arm are so tired, cant even wrap my ass， but i felt i am making huge progression
+
+# Day 11 ()
+
+- play the alternate picking sequence at 80% speed, a bit messy, but i am getting used to the speed. (1hrs)
+- still building muscle memories of sextuplet pentatonic and minor scale run
+
+- want to try the cant stop riff
