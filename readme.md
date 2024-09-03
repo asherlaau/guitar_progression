@@ -50,5 +50,10 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 
 # Day 12 (2hrs), total
 
-- spider (1hr) from 60 bpm to 200 bpm, fixed finger and move all finger both
-- alternate picking sequence(1hr)
+- spider (1hr) from 60 bpm to 200 bpm, fixed finger and move all finger both done
+
+- alternate picking sequence(1hr) (reached 90%) done
+
+- sextuplet pentatonic and minor scale run (1hr) (from 47% to 55% huge progression !!!!!!!!!!!), i need to go to gym, hope tonight can push to 60%.
+    - 1 more hr on sextuplet pentatonic and minor scale
+- 3 hr to get familiar with scale sequence and string skipping
