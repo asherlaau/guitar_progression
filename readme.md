@@ -51,7 +51,7 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 - i can only do 47%, but it is okay.  (1hr)
 
 
-# Day 12 (4hrs), total 63hrs
+# Day 12 (4hrs), total 64hrs
 
 - spider (1hr) from 60 bpm to 200 bpm, fixed finger and move all finger both done
 
