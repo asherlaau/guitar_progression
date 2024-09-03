@@ -8,6 +8,9 @@
     2. Theres no penguins in alaska by Chiodos
     3. I Miss You by Ichika 
 
+- some useful links updates
+    - how to play like ichika ->https://guitarunit.com/complete-guide-how-to-play-guitar-like-ichika-nito/#:~:text=Ichika%20Nito%20incorporates%20fingerstyle%20and%20hybrid%20picking.%20Often,in%20order%20to%20play%20anything%20from%20his%20repertoire.
+
 
 # The cost of guitar, pick, and amp
 - jet guitar (dont know the name, but it is for beginner)
@@ -48,12 +51,12 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 - i can only do 47%, but it is okay.  (1hr)
 
 
-# Day 12 (3hrs), total 63hrs
+# Day 12 (4hrs), total 63hrs
 
 - spider (1hr) from 60 bpm to 200 bpm, fixed finger and move all finger both done
 
 - alternate picking sequence(1hr) (reached 90%) done
 
 - sextuplet pentatonic and minor scale run (1hr) (from 47% to 55% huge progression !!!!!!!!!!!), i need to go to gym, hope tonight can push to 60%.
-    - 1 more hr on sextuplet pentatonic and minor scale
-- 3 hr to get familiar with scale sequence and string skipping
+    - 1 more hr on sextuplet pentatonic and minor scale done
+- 1 hr to get familiar with scale sequence and string skipping
