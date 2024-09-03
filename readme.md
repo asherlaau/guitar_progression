@@ -46,3 +46,8 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 - spider (30 mins, from 60 to 200)
 - still building muscle memories of sextuplet pentatonic and minor scale run -> 5:42 pm (35% of original speed) (3.5hrs) -> today's goal : pushing to (55%)
 - i can only do 47%, but it is okay.  (1hr)
+
+
+# Day 12 (), total
+
+- spider (1hr)
