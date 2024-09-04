@@ -61,6 +61,6 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
     - 1 more hr on sextuplet pentatonic and minor scale done
 - 1 hr to get familiar with scale sequence and string skipping
 
-# Day 13(), total hrs
+# Day 13(1hr), total 65hrs
 
 - spider (1hr) from 60 to 200, fixed 3 fingers and move all fingers, all done
