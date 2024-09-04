@@ -61,7 +61,7 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
     - 1 more hr on sextuplet pentatonic and minor scale done
 - 1 hr to get familiar with scale sequence and string skipping
 
-# Day 13(2hr), total 66hrs
+# Day 13(4hr), total 68hrs
 
 4/9/2024
 
@@ -69,6 +69,8 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 
 - alternate picking sequence(1hr) (reached 90%) done (3:15pm - 4:28pm)
 
-- take a 30mins nap 
+- take a 1.5 hrs nap 
 
-- sextuplet pentatonic and minor scale run (1.5hr) 
+- sextuplet pentatonic and minor scale run (1.5hr) (only 55% of original speed), need to reduce strength of the picking hand to make the pick faster. done
+
+- another 0.5 hr to solve the picking hand problem, sextuplet pentatonic and minor scale run
