@@ -60,3 +60,7 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 - sextuplet pentatonic and minor scale run (1hr) (from 47% to 55% huge progression !!!!!!!!!!!), i need to go to gym, hope tonight can push to 60%.
     - 1 more hr on sextuplet pentatonic and minor scale done
 - 1 hr to get familiar with scale sequence and string skipping
+
+# Day 13(), total hrs
+
+- spider (1hr) from 60 to 200, fixed 3 fingers and move all fingers, all done
