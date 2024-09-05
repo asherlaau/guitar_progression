@@ -74,3 +74,10 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 - sextuplet pentatonic and minor scale run (1.5hr) (only 55% of original speed), need to reduce strength of the picking hand to make the pick faster. done
 
 - another 0.5 hr to solve the picking hand problem, sextuplet pentatonic and minor scale run
+
+
+# Day 14(), total hrs
+
+4/9/2024
+
+- spider (1hr) from 60 to 200, fixed 3 fingers and move all fingers, （12：30 - 1：30） all done
