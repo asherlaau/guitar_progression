@@ -76,7 +76,7 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 - another 0.5 hr to solve the picking hand problem, sextuplet pentatonic and minor scale run
 
 
-# Day 14(), total hrs
+# Day 14(1), total 69hrs
 
 4/9/2024
 
