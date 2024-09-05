@@ -76,8 +76,10 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 - another 0.5 hr to solve the picking hand problem, sextuplet pentatonic and minor scale run
 
 
-# Day 14(1), total 69hrs
+# Day 14(2.5), total 70.5hrs
 
 4/9/2024
 
 - spider (1hr) from 60 to 200, fixed 3 fingers and move all fingers, （12：30 - 1：30） all done
+
+- 1.5 hrs guitar lesson
