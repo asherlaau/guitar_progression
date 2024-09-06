@@ -78,8 +78,14 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 
 # Day 14(2.5), total 70.5hrs
 
-4/9/2024
+5/9/2024
 
 - spider (1hr) from 60 to 200, fixed 3 fingers and move all fingers, （12：30 - 1：30） all done
 
 - 1.5 hrs guitar lesson
+
+# Day 15(1.5), total 72hrs
+
+6/9/2024
+
+- spider (1.5hrs) from 60 to 200, fixed 3 fingers and move all fingers, （12：30 - 2:04)
