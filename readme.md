@@ -88,4 +88,4 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 
 6/9/2024
 
-- spider (1.5hrs) from 60 to 200, fixed 3 fingers and move all fingers, （12：30 - 2:04)
+- spider (1.5hrs) from 60 to 200, fixed 3 fingers and move all fingers, and fixed ring finger, move all, and swith all two fingers, and rhythm excise （12：30 - 2:04)
