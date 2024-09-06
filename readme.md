@@ -84,10 +84,14 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 
 - 1.5 hrs guitar lesson
 
-# Day 15(2.5), total 73hrs
+# Day 15(3.5), total 73hrs
 
 6/9/2024
 
 - spider (1.5hrs) from 60 to 200, fixed 3 fingers and move all fingers, and fixed ring finger, move all, and swith all two fingers, and rhythm excise （12：30 - 2:04)
 
 -  alternate picking sequence, Danial said i need to move my thumb down and my pick holding position is not correct(1hr) (doing 80% for an hour) done (10:05pm - 11:09pm)
+
+
+
+- sextuplet pentatonic and minor scale run (1hr)
