@@ -84,7 +84,7 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 
 - 1.5 hrs guitar lesson
 
-# Day 15(1.5), total 72hrs
+# Day 15(2.5), total 73hrs
 
 6/9/2024
 
