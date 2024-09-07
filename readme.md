@@ -97,8 +97,10 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 - sextuplet pentatonic and minor scale run (1hr)
 
 
-# Day 16(1.5hrs), total 75.5hrs 
+# Day 16(2.5hrs), total 76.5hrs 
 
 - 7/9/2024
 
-- spider (1.5hrs) from 60 to 210 just like yesterday, but more accurate press and swap
+- spider (1.5hrs) from 60 to 210 just like yesterday, but more accurate press and swap, done
+
+- alternate picking sequence (92%)(1 hr), done, 9:53 - 10:53 
