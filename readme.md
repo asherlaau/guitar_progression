@@ -11,6 +11,7 @@
 - some useful links updates
     - how to play like ichika ->https://guitarunit.com/complete-guide-how-to-play-guitar-like-ichika-nito/#:~:text=Ichika%20Nito%20incorporates%20fingerstyle%20and%20hybrid%20picking.%20Often,in%20order%20to%20play%20anything%20from%20his%20repertoire.
 
+https://www.blitzguitar.com/12-most-important-fingerpicking-guitar-exercises/
 
 # The cost of guitar, pick, and amp
 - jet guitar (dont know the name, but it is for beginner)
@@ -97,10 +98,12 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 - sextuplet pentatonic and minor scale run (1hr)
 
 
-# Day 16(2.5hrs), total 76.5hrs 
+# Day 16(3.5hrs), total 76.5hrs 
 
 - 7/9/2024
 
 - spider (1.5hrs) from 60 to 210 just like yesterday, but more accurate press and swap, done
 
 - alternate picking sequence (92%)(1 hr), done, 9:53 - 10:53 
+
+- sextuplet pentatonic and minor scale run, done 10:57 - 11: 57
