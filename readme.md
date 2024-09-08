@@ -108,7 +108,7 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 
 - sextuplet pentatonic and minor scale run, done 10:57 - 11: 57
 
-# Day 17(1 hr), total 77.5 hrs
+# Day 17(2 hrs), total 78.5 hrs
 
-- spider (1.5hrs) from 60 to 210 just like yesterday, done 
+- spider (2 hrs) from 60 to 210 just like yesterday, done 
 
