@@ -107,3 +107,8 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 - alternate picking sequence (92%)(1 hr), done, 9:53 - 10:53 
 
 - sextuplet pentatonic and minor scale run, done 10:57 - 11: 57
+
+# Day 17(1 hr), total 77.5 hrs
+
+- spider (1.5hrs) from 60 to 210 just like yesterday, done 
+
