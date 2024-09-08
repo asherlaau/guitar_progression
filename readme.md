@@ -108,12 +108,12 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 
 - sextuplet pentatonic and minor scale run, done 10:57 - 11: 57
 
-# Day 17(4.5 hrs), total 80.5 hrs
+# Day 17(5 hrs), total 81.5 hrs
 
 - spider (2 hrs) from 60 to 210 just like yesterday, done 
 
 -  alternate picking sequence, 1 hr, done
 
 - sextuplet pentatonic and minor scale run, done (1 hr)
-- 0.5hr am pentationic scale 
+- am pentationic scale and  Ionian mode pratice, want to make it as fast as possible (1 hr) 
 
