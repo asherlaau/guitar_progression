@@ -115,5 +115,5 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 -  alternate picking sequence, 1 hr, done
 
 - sextuplet pentatonic and minor scale run, done (1 hr)
-- 0.5hr  am pentationic scale 
+- 0.5hr am pentationic scale 
 
