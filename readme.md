@@ -118,4 +118,8 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 - am pentationic scale and  Ionian mode pratice, want to make it as fast as possible (1 hr) 
 
 
+# Day 18(2hrs), total 83.5 hrs
+
+- spider (2 hrs) from 60 to 200, done
+
 
