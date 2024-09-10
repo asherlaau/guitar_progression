@@ -127,3 +127,14 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 - sextuplet pentatonic and minor scale run, done (1 hr)
 
 - some chord transition practice (30mins)
+
+
+# Day 19(1hr), total 87hrs
+
+- scale sequence and string skipping (1hr), 2:40 - 3: 40, done, memorized the first part 
+
+- spider (2hrs)
+
+- alternate picking sequence 0.5 hrs + sextuplet pentatonic and minor scale run 0.5 hrs -> 1hr
+
+- chord transition and appreggio? 1 hr
