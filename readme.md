@@ -138,7 +138,7 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 - spider (11:20 - 1:40)(2hrs) 
 
 
-# Day 20 (3hrs), total 93.5hrs
+# Day 20 (4.5hrs), total 95hrs
 
 11/9/2024
 - scale sequence and string skipping (1hr), 3:00 - 4:00, done
@@ -146,3 +146,9 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 - alternate picking sequence 1 hr 5:32 - 6:32, done
 
 - ichika 10 levels of appreggio, 1 - 16 finished, with finger picking, done(1 hr)
+
+- ichika 10 levels of appreggio, 1 - 16 finished, with pick, done (0.5hrs)
+
+- sextuplet pentatonic and minor scale run 0.5 hrs 1: 44 - 2: 14 (0.5hrs)
+
+- spider (0.5 hrs)
