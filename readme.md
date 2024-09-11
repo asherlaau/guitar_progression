@@ -133,6 +133,13 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 
 - scale sequence and string skipping (1hr), 2:40 - 3: 40, done, memorized the first part 
 
-- alternate picking sequence 1 hrs （9：43 - 10：35）+ sextuplet pentatonic and minor scale run 0.5 hrs （10：35 - 11：20） -> 1.5hrs
+- alternate picking sequence 1 hr （9：43 - 10：35）+ sextuplet pentatonic and minor scale run 0.5 hrs （10：35 - 11：20） -> 1.5hrs
 
 - spider (11:20 - 1:40)(2hrs) 
+
+
+# Day 20 (1hr), total 91.5hrs
+
+- scale sequence and string skipping (1hr), 3:00 - 4:00, done
+
+- alternate picking sequence 1 hr 5:32 - 6:32, done
