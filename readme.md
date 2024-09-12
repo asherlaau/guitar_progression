@@ -153,7 +153,7 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 
 - spider (0.5 hrs)
 
-# Day 21 (3.5 hrs), total 96hrs 
+# Day 21 (4.5 hrs), total 99.5hrs 
 
 12/9/2024 
 - scale sequence and string skipping (1hr), 1:44 - 2:44, done
@@ -161,3 +161,5 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 - sextuplet pentatonic and minor scale， 9：00 - 10：30 （1.5hr) , done
 
 - alternate picking sequence 1 hr 10:30 - 11:00, done
+
+- legato pentatonic and ascending major scale, 12:22 - 1:22, done (1hr)
