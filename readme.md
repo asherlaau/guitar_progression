@@ -163,3 +163,9 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 - alternate picking sequence 1 hr 10:30 - 11:00, done
 
 - legato pentatonic and ascending major scale, 12:22 - 1:22, done (1hr)
+
+# Day 22 (1hrs), total 100.5hrs
+
+13/9/2024
+
+- scale sequence and string skipping (1hr), 2:50 - 3:50, done
