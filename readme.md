@@ -174,8 +174,10 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 
 - playing god 2 hrs
 
-# Day 23 (1hr), total 101.5hrs
+# Day 23 (2hrs), total 102.5hrs
 
 14/9/2024
 
 -  scale sequence and string skipping + alternate picking sequence + sextuplet pentatonic and minor scale (1 hr), done (2:00 - 3:00)
+
+- Legato pentatonic and ascending major scale （1hr） my left hand cant fucking move, the pull off is fucking hard, especially the ring finger and pinky one fuck
