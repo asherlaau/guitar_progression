@@ -173,3 +173,9 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 - alternate picking sequence + sextuplet pentatonic and minor scale (1hr), 3:50 - 4:50
 
 - playing god 2 hrs
+
+# Day 23 (1hr), total 101.5hrs
+
+14/9/2024
+
+-  scale sequence and string skipping + alternate picking sequence + sextuplet pentatonic and minor scale (1 hr), done (2:00 - 3:00)
