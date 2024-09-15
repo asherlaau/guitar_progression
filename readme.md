@@ -181,3 +181,9 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 -  scale sequence and string skipping + alternate picking sequence + sextuplet pentatonic and minor scale (1 hr), done (2:00 - 3:00)
 
 - Legato pentatonic and ascending major scale （1.5hr） my left hand cant fucking move, the pull off is fucking hard, especially the ring finger and pinky one fuck
+
+# Day 24 (1 hr), total 104 hrs
+
+15/9/2024
+
+- scale sequence and string skipping + alternate picking sequence + sextuplet pentatonic and minor scale (1 hr), 6:55 - 7:55, done
