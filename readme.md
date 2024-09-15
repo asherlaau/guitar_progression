@@ -182,7 +182,7 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 
 - Legato pentatonic and ascending major scale （1.5hr） my left hand cant fucking move, the pull off is fucking hard, especially the ring finger and pinky one fuck
 
-# Day 24 (1 hr), total 104 hrs
+# Day 24 (1.5 hr), total 104.5 hrs
 
 15/9/2024
 
