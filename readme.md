@@ -186,4 +186,4 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 
 15/9/2024
 
-- scale sequence and string skipping + alternate picking sequence + sextuplet pentatonic and minor scale (1 hr), 6:55 - 7:55, done
+- scale sequence and string skipping + alternate picking sequence + sextuplet pentatonic and minor scale (1.5 hr), 6:55 - 8:24, done
