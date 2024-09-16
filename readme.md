@@ -189,3 +189,7 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 - scale sequence and string skipping + alternate picking sequence + sextuplet pentatonic and minor scale (1.5 hr), 6:55 - 8:24, done
 
 - Legato pentatonic and ascending major scale （1hr）, train pull off of different finger to be quicker.
+
+# Day 25 (0hr), total 105.5hrs
+
+- break, fingers hurt
