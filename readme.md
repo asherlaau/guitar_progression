@@ -200,6 +200,8 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 
 - Legato (1.5 hrs), (11:10 - 1:30)
 
+- pull offff fucking pull offffffffffff, scale pratice with only one hand use pull off and hammer on
+
 # Day 27
 
 (11 hrs needs to payback fuck)
