@@ -199,3 +199,7 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 - scale sequence and string skipping + alternate picking sequence + sextuplet pentatonic and minor scale (1.5 hrS)
 
 - Legato (1hr), (1:10 - 12:19)
+
+# Day 27
+
+(11 hrs needs to payback fuck)
