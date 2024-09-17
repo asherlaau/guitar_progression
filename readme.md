@@ -193,3 +193,9 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 # Day 25 (0hr), total 105.5hrs
 
 - break, fingers hurt
+
+# Day 26 (45mins), total 106hrs
+
+- scale sequence and string skipping + alternate picking sequence + sextuplet pentatonic and minor scale (1.5 hrS)
+
+- Legato (1hr), (1:10 - 12:19)
