@@ -204,4 +204,8 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 
 # Day 27
 
-(11 hrs needs to payback fuck)
+18/9/2024 
+
+- 0.5hrs(3:00 - 3:32) 
+
+(11 hrs need to play back)
