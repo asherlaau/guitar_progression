@@ -202,10 +202,27 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 
 - pull offff fucking pull offffffffffff, scale pratice with only one hand use pull off and hammer on
 
-# Day 27
+# Day 27 (0.5hrs), total 109.5hrs
 
 18/9/2024 
 
 - 0.5hrs(3:00 - 3:32) 
 
-(11 hrs need to play back)
+- Java assignment fuck me up
+
+# Day28 (4 hrs), total 113.5hrs
+
+19/9/2024
+
+- 1hr legato 
+- 2hr guitar lesson with sean
+- 1hr pratice sliding 
+
+# Day29 (2hrs), total 115.5 hrs 
+
+20/9/2024
+
+- 1hr guitar lesson with Danial 
+- polyphia riffs -> worst and goat (1hr)
+
+(19 hrs need to play back)
