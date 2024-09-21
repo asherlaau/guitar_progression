@@ -225,4 +225,11 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 - 1hr guitar lesson with Danial 
 - polyphia riffs -> worst and goat (1hr)
 
-(19 hrs need to play back)
+# Day30(4hrs), total 119.5
+
+21/9/2024
+
+- 1hr random songs 
+- worst, goat, playing god intro riffs (3hrs)
+
+(20 hrs need to play back)
