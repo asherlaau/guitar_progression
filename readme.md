@@ -232,4 +232,14 @@ total : 810 AUD = 4330 HKD （expensive {-}_{-}）
 - 1hr random songs 
 - worst, goat, playing god intro riffs (3hrs)
 
+# Day31(2.5hrs), total 122hrs
+
+22/9/2024
+
+- scale sequence and string skipping + alternate picking sequence + sextuplet pentatonic and minor scale (1 hr)
+
+- legato (1hr)
+
+- polyphia (0.5hrs)
+
 (20 hrs need to play back)
